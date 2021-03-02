@@ -8,11 +8,11 @@ oil (olive)
 0.5-1 onion, chopped/diced  
 3ish celery stalks, chopped  
 3 garlic cloves, minced  
-1 tsp cumin
-1 tsp tumeric
-1 *PINCH* ground cayenne pepper  
+1 tsp cumin  
+1 tsp tumeric  
+1 *PINCH* ground cayenne pepper   
 2 bay leaves  
-2 tsp salt
+2 tsp salt  
 fresh ground black pepper  
 cumin seeds (sometimes)    
 curry powder (sometimes)  
